@@ -1,0 +1,6 @@
+- Hi im kiri ∞
+- I will be posting the things below :
+- Codes - Projects
+- Emojis (Discord)
+- Tools
+- Simple Things
